@@ -1,0 +1,1 @@
+# AMS-Software-PhotoWorks-18.2-Crack
